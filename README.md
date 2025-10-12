@@ -10,7 +10,6 @@
 
  <sub> ˚⊱ [ATAB00K](https://saweden.atabook.org/)   ݁˖  [RENTRY](https://rentry.co/saweden)   ݁˖  [CARRD](https://saweden.carrd.co/) ⊰˚ <sub>
 
-![](https://files.catbox.moe/2m35ix.png)
 
 </div> <div align="center">  
 
