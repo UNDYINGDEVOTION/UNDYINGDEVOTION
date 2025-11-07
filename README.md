@@ -8,7 +8,7 @@
 </div> <div align="center"> I'm often off tab so 𝘄𝟮𝗶 if i don't reply !
 </div> <div align="center">   ⠀⠀
 
- <sub> ˚⊱ [ATAB00K](https://saweden.atabook.org/)   ݁˖  [RENTRY](https://rentry.co/saweden)   ݁˖  [CARRD](https://saweden.carrd.co/) ⊰˚ <sub>
+ <sub> ˚⊱ [ATAB00K](https://saweden.atabook.org/)   ݁˖  [RENTRY](https://rentry.co/saweden)   ݁˖  [GUNS.LOL](https://guns.lol/hajime.hinata) ⊰˚ <sub>
 
 ![](https://files.catbox.moe/snxjfk.png)
 
