@@ -10,7 +10,7 @@
 
  <sub> ˚⊱ [ATAB00K](https://saweden.atabook.org/)   ݁˖  [RENTRY](https://rentry.co/saweden)   ݁˖  [GUNS.LOL](https://guns.lol/hajime.hinata) ⊰˚ <sub>
 
-![](https://files.catbox.moe/snxjfk.png)
+![](https://files.catbox.moe/gkrano.gif)
 
 </div> <div align="center">  
 
