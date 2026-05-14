@@ -8,8 +8,6 @@
 </div> <div align="center"> I'm often off tab so 𝘄𝟮𝗶 if i don't reply !
 </div> <div align="center">   ⠀⠀
 
- ݁˖  [GUNS.LOL](https://guns.lol/riskyrunaway) ⊰˚ <sub>
-
 ![](https://c.tenor.com/oQ3BfZ8PggUAAAAd/tenor.gif)
 
 </div> <div align="center">  
