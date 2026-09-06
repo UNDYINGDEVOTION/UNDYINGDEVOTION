@@ -27,11 +27,11 @@
 <img src="https://files.catbox.moe/i382ii.png" width="450">
 <br>
 <a href="https://risky-runaway.straw.page/">
-  <img src="https://files.catbox.moe/d7hllg.png" width="210""‎>‎ ‎
+  <img src="https://files.catbox.moe/d7hllg.png" width="150""‎>‎ ‎
 </a>
         : ⛐ :
 <a href="https://riskyrunaway.atabook.org/">
-  <img src="https://files.catbox.moe/ibas1h.png" width="210"">‎ ‎
+  <img src="https://files.catbox.moe/ibas1h.png" width="150"">‎ ‎
 </a>
 
 <br>
