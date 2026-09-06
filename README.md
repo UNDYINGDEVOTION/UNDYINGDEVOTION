@@ -31,4 +31,4 @@ WIP WIP WIP WIP WIP
 </table>
 <br>
 
-<img src="https://files.catbox.moe/i382ii.png" width="650">
+<img src="https://files.catbox.moe/i382ii.png" width="450">
