@@ -17,7 +17,7 @@
      <br>
      ‎ 18yr ‎‎    𓏲 ㅤ any pronouns ‎ ‎ ‎ 
           <br>
-     ESFP 2w3  ‎ ‎ <img src="https://i.ibb.co/m6hgYvc/IMG-6619.gif" width=10>  GMT + 1
+     ENFJ 2w3  ‎ ‎ <img src="https://i.ibb.co/m6hgYvc/IMG-6619.gif" width=10>  GMT + 1
      
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hs3smmv24lmol8cds0yebbwe2&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=cc1400&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
     </td>
