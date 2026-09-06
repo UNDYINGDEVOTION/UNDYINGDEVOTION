@@ -1,6 +1,5 @@
-![div](https://64.media.tumblr.com/cadea64fd63e60dce452b89e502ba90d/3d4ff71ffda98ad8-9f/s1280x1920/8c7ab27be90f3186e8b76f72def16955aca98923.pnj)
-</div> <div align="center"> <img src="https://files.catbox.moe/i3g1g5.gif" width="350"
-</div> <div align="center">   ⠀⠀
+</div> <div align="center"> <img src="https://64.media.tumblr.com/cadea64fd63e60dce452b89e502ba90d/3d4ff71ffda98ad8-9f/s1280x1920/8c7ab27be90f3186e8b76f72def16955aca98923.pnj" width="750">
+</div> <div align="center"> <img src="https://files.catbox.moe/i3g1g5.gif" width="350"   ⠀⠀
 </div> <div align="center">   ✦•······················•✦•······················•✦　
 </div> <div align="center">   ⠀⠀
 <p align="center">
@@ -34,3 +33,9 @@
 <a href="https://riskyrunaway.atabook.org/">
   <img src="https://files.catbox.moe/ibas1h.png" width="210"">‎ ‎
 </a>
+
+<br>
+<br>
+<br>
+
+</div> <div align="center"> <img src="https://files.catbox.moe/g3jiqm.png" width="750">
