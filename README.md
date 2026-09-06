@@ -8,9 +8,10 @@ WIP WIP WIP WIP WIP
 </div> <div align="center"> 𝗰 + 𝗵 always , interact freely
 </div> <div align="center"> I'm often off tab so 𝘄𝟮𝗶 if i don't reply !
 </div> <div align="center">   ⠀⠀
+<p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&duration=4500&pause=1000&color=6F1414&background=FF676700&center=true&vCenter=true&width=435&lines=%E2%9D%9D+So+I+do+have+a+partner+!+%E3%82%9B%EF%BD%A1" alt="Typing SVG" /></a>
 
-  <br>
-<br> 
+  ✦•······················•✦•······················•✦　
 <table>
   <tr>
     <td rowspan="3" align="center">
